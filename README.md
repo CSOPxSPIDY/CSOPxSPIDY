@@ -1,1 +1,1 @@
-<a target="blank"><img align="right" src="https://media0.giphy.com/media/dyjrpqaUVqCELGuQVr/giphy.gif" height="100" /></a>
+![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
