@@ -1,1 +1,1 @@
-<a target="blank"><img align="center" src="https://media.giphy.com/media/ErZ8hv5eO92JW/giphy.gif" height="100" /></a>
+<a target="blank"><img align="center" src="https://w0.peakpx.com/wallpaper/747/327/HD-wallpaper-tanjiro-pic-fan-art-anime-demon-slayer-kimetsu-no-yaiba.jpg" height="100" /></a>
