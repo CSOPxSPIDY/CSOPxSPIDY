@@ -1,1 +1,1 @@
-<a target="blank"><img align="center" src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fgifs.alphacoders.com%2Fby_category%2F3&psig=AOvVaw1IymonpEsGjKo0BwdeusMn&ust=1669811586428000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCLCgp47o1PsCFQAAAAAdAAAAABAO" height="100" /></a>
+<a target="blank"><img align="center" src="https://media.giphy.com/media/ErZ8hv5eO92JW/giphy.gif" height="100" /></a>
